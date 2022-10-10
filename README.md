@@ -1,2 +1,5 @@
-# ALIEN-WAR
-👽PERSONAL-REPO👽DON'T WASTE YOUR TIME👽
+![IMG](https://i.imgur.com/gHkr4fl.gif)
+![IMG](https://i.imgur.com/nmVOF6P.gif)
+![IMG](https://i.imgur.com/gHkr4fl.gif)
+![IMG](https://i.imgur.com/3tw4KdG.gif)
+![IMG](https://i.imgur.com/gHkr4fl.gif)
